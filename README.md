@@ -1,2 +1,0 @@
-# rakets.github.io
-CV
